@@ -1,0 +1,20 @@
+---
+layout: page
+title: North and South
+author: Elizabeth Gaskill
+permalink: /north-and-south/
+---
+
+
+
+# North and South
+
+by Elizabeth Gaskill
+
+## Chapter XXVII
+
+When Mr. Thornton had left the house that morning he was almost blinded by his baffled passion. He was as dizzy as if Margaret, instead of looking, and speaking, and moving like a tender graceful woman, had been a sturdy fish-wife, and given him a sound blow with her fists. He had positive bodily pain—a violent headache, and a throbbing intermittent pulse. He could not bear the noise, the garish light, the continued rumble and movement of the street. He called himself a fool for suffering so; and yet he could not, at the moment, recollect the cause of his suffering, and whether it was adequate to the consequences it had produced. It would have been a relief to him, if he could have sat down and cried on a door-step by a little child, who was raging and storming, through his passionate tears, at some injury he had received. He said to himself, that he hated Margaret, but a wild, sharp sensation of love cleft his dull, thunderous feeling like lightning, even as he shaped the words expressive of hatred. His greatest comfort was in hugging his torment and in feeling, as he had indeed said to her, that though she might despise him, contemn him, treat him with her proud sovereign indifference, he did not change one whit. She could not make him change. He loved her, and would love her; and defy her, and this miserable bodily pain.
+
+He stood still for a moment, to make this resolution firm and clear. There was an omnibus passing—going into the country; the conductor thought he was wishing for a place, and stopped near the pavement. It was too much trouble to apologise and explain; so he mounted upon it, and was borne away—past long rows of houses—then past detached villas with trim gardens, till they came to real country hedge-rows, and, by-and-by, to a small country town. Then everybody got down; and so did Mr. Thornton, and because they walked away he did so too. He went into the fields, walking briskly, because the sharp motion relieved his mind. He could remember all about it now; the pitiful figure he must have cut; the absurd way in which he had gone and done the very thing he had so often agreed with himself in thinking would be the most foolish thing in the world; and had met with exactly the consequences which, in these wise moods, he had always foretold were certain to follow, if he ever did make such a fool of himself. Was he bewitched by those beautiful eyes, that soft, half-open, sighing mouth which lay so close upon his shoulder only yesterday? He could not even shake off the recollection that she had been there; that her arms had been round him, once—if never again. He only caught glimpses of her; he did not understand her altogether. At one time she was so brave, and at another so timid; now so tender, and then so haughty and regal{164} proud. And then he thought over every time he had ever seen her once again, by way of finally forgetting her. He saw her in every dress, in every mood, and did not know which became her best. Even this morning how magnificent she had looked—her eyes flashing out upon him at the idea that, because she had shared his danger yesterday, she had cared for him the least!
+
+If Mr. Thornton was a fool in the morning, as he assured himself at least twenty times he was, he did not grow much wiser in the afternoon. All that he gained for his sixpenny omnibus ride, was a more vivid conviction that there never was, never could be, any one like Margaret; that she did not love him and never would; but that she—no! nor the whole world—should never hinder him from loving her. And so he returned to the little market-place, and remounted the omnibus to return to Milton.
